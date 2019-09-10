@@ -34,4 +34,26 @@ I think I enjoy the act of taking photographs because they look aesthetically pl
 
 ## Conclusions
 
-A lot of social media related aspects of my life are different now - I'm not sure they're better, they're just different.
+A lot of social media related aspects of my life are different now - I'm not sure they're better, they're just different, but I can confidently say that I prefer this normal to last year's. There's a bit of rain with all of the sunshine. I don't see myself ever going back to social media. I don't see the point of it, and after leaving for a while, and getting a good outside look, it seems like an abusive relationship - millions of workers generating data for tech-giants to crunch through and make money off of. I think that we tend to forget how we were getting along pretty well before social media - not everything was idyllic and better, but it was fine.
+
+Here are a few of my key takeaways in the areas I was hoping to improve with this experiment:
+
+### Mental Health Benefits
+
+I feel by far less distracted. My attention span feels more robust than it ever has. I also clocked in at 1000 consecutive days of meditation this past year so I'm not sure which can lay claim to more of these benefits, but my hunch is that getting rid of social media helped. Through increased mindfulness, I was able to observe multiple sub-personas within myself. My 'Instagram self' was a slightly modified version of my ordinary self. Same with Facebook. We probably all do this to an extent, your 'work self' is probably a bit different than your 'with-friends self', but hopefully these are all within a small range of variance. With your 'social media selves' you are aware that anything you post is there permanently. This adds a lot of weight to your ability to move freely and thus adds stress.
+
+Part of me still experiences a bit of FOMO by being off of these networks, although it's often transitory and doesn't significantly register on an emotional level.
+
+### Enhanced Interpersonal Relationships
+
+You know what else is exhausting? Pretending to care about people you don't give a shit about. Maybe you're just a better person than I am and you genuinely and deeply care about everyone you are 'friends' with on Facebook. I didn't. **I had almost 1000 friends and really only wanted to know what about 2% of them were up to, and how they were doing.** That means I was participating in a system where I engaged in something disengenous 98% of the time.
+
+I don't think I have a lot of friends but it doesn't bug me at all. I actively maintain (and I mean _actively_) about 10 friendships not including family, and I feel like this is a good number for me. It took me a long time to feel good about this. For a long time, I wondered why I didn't just automatically feel good about my ~10 quality friendships - the answer came to me when my girlfriend showed me something on her Instagram. Instagram and other social media networks display the number of friends that you have. The only logical reason I could figure for why this is done, is to make you feel bad about having a lower number than other people, otherwise why would they bother broadcasting this number, proudly at the top of your profile page, to other users?
+
+I'm happy with my friendships. They feel healthy, reciprocal, and real.
+
+### Presence
+
+I feel as though my reality is less mediated in the ways that a social media user's is. I don't visually see things as potential photos for capturing and posting for other people to see (so that I can get approval), I just see them. When I have ideas I think are good, I don't just shit them out, half-baked, as a 'status update'. I stew on them, exploring for weeks or months and write them out like this when I want to post them. Usually they just go in a notebook.
+
+Disturbingly I feel disgust that sometimes takes me out of the moment. I was swimming in an apartment complex pool last week. It was hot out, low 90s.
