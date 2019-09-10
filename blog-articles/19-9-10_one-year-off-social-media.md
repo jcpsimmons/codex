@@ -36,6 +36,8 @@ I think I enjoy the act of taking photographs because they look aesthetically pl
 
 A lot of social media related aspects of my life are different now - I'm not sure they're better, they're just different, but I can confidently say that I prefer this normal to last year's. There's a bit of rain with all of the sunshine. I don't see myself ever going back to social media. I don't see the point of it, and after leaving for a while, and getting a good outside look, it seems like an abusive relationship - millions of workers generating data for tech-giants to crunch through and make money off of. I think that we tend to forget how we were getting along pretty well before social media - not everything was idyllic and better, but it was fine.
 
+Your mileage may vary. I'm not suggesting that quitting social media is good for everyone. I think that it significantly decreases quality of life, but I'm just one person.
+
 Here are a few of my key takeaways in the areas I was hoping to improve with this experiment:
 
 ### Mental Health Benefits
@@ -55,5 +57,3 @@ I'm happy with my friendships. They feel healthy, reciprocal, and real.
 ### Presence
 
 I feel as though my reality is less mediated in the ways that a social media user's is. I don't visually see things as potential photos for capturing and posting for other people to see (so that I can get approval), I just see them. When I have ideas I think are good, I don't just shit them out, half-baked, as a 'status update'. I stew on them, exploring for weeks or months and write them out like this when I want to post them. Usually they just go in a notebook.
-
-Disturbingly I feel disgust that sometimes takes me out of the moment. I was swimming in an apartment complex pool last week. It was hot out, low 90s.
